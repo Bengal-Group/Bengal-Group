@@ -1,1 +1,1 @@
-# Bengal-Group
+Bengal Group of Industries is one of the leading and fastest-growing conglomerates in Bangladesh. Food Processing, Plastics, Rubber & Melamine, Textile & Apparels, Power & Energy, Hospitality, Building Materials, Infrastructure, Media & Entertainment- we are rooted in these sectors with apt resources. 
